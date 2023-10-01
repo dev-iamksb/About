@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @dev-iamksb
+- 👋 Hi, I’m Kamal Singh
 
 
